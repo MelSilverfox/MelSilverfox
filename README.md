@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on making cool projects
 - 📫 How to reach me mel.pelletier274@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I like cats.
+- ⚡ Fun fact: I like foxes (I really do).
 
 <!---
 MelSilverfox/MelSilverfox is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
